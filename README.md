@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Sytax1
+- 👀 I’m interested in learning new stuff
+- 🌱 I’m currently a BTS SIO student (eq. HND)
